@@ -1,0 +1,2 @@
+# Kamkor.kg
+Kamkor
